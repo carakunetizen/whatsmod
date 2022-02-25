@@ -23,6 +23,8 @@ Fitur-fitur WA Mod
 ==================
 Setelah berkenalan dengan beberapa WhatsApp MOD di atas, Anda tentu penasaran dengan fitur-fitur menarik yang ditawarkannya kan? Buat yang penasaran, berikut adalah fitur masing-masing WA MOD tersebut.
 
+Keren
+
 1. GBWhatsApp
 
 Fitur-fitur WA MOD pertama adalah dari `GBWhatsApp (GB WA) <https://www.osrepublik.com/download-gb-whatsapp-terbaru/>`_ ya. Jika Anda perhatikan, aplikasi satu ini adalah WA MOD yang nyaris sama seperti WhatsApp Plus. Hal ini karena keduanya mempunyai banyak fitur menarik. Dengan menggunakan versi terbarunya, atau versi V3.6.2, Anda bisa tetap online tapi tidak terlihat online loh. Alias, bisa menyembunyikan status Anda yang tengah online. Aplikasi keren ini dapat digunakan pada ponsel apapun. Adapun fitur menariknya adalah:
